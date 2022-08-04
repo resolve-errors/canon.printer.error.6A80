@@ -8,6 +8,6 @@ This is a general error in Canon printers, occurs when the print head is covered
 ## Is Canon Printer Error 6A80 a problem for you?
 
 
-Don't worry, visit Canon Printer Error Code 6A80 to get it fixed right away. Alternatively, you can resolve this problem with Check Out Our page 
+Don't worry, visit [Canon Printer Error 6A80](https://computersolve.com/canon-printer-error-6a80/)  to get it fixed right away. Alternatively, you can resolve this problem with Check Out Our page 
 
  [![Canon Printer Error 6A80](read.png)](https://computersolve.com/canon-printer-error-6a80/) 
