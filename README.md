@@ -1,6 +1,6 @@
 # Canon Printer Error 6A80
 
-[![Canon printer error code E04](red2.png)](https://computersolve.com/canon-printer-error-6a80/)
+[![Canon Printer Error 6A80](red2.png)](https://computersolve.com/canon-printer-error-6a80/)
 
 This is a general error in Canon printers, occurs when the print head is covered then a procedure that will help us solve the problem and then reset code to restore your computer.
 
